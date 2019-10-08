@@ -1,2 +1,2 @@
 # galaxizes01011
-the maware in .VBS(visual basic script)
+the troll maware in .VBS(visual basic script)
